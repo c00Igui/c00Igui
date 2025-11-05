@@ -2,7 +2,7 @@
   I BUILT MYSELF UP⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>ONLY TO BE YOU</ins>
 </p>
 <p align="center">
-  <img src="https://meawsource.carrd.co/assets/images/image12.png?v=4107b1dc"/>
+  <img src="https://meawsource.carrd.co/assets/images/image12.png?v=771b0b18"/>
 </p>
 
 <p align="center">
