@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.org/admin-virus>rentry.</a> ⠀⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀⠀ <a href=https://rentry.co/shedletsky5>pt rentry.</a>
+  <a href=https://rentry.org/shedIetsky>rentry.</a> ⠀⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀⠀ <a href=https://rentry.co/shedletsky5>pt rentry.</a>
 </p>
 
 <br>
