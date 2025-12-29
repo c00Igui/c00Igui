@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/finalshot>rentry.</a> ⠀⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀⠀ <a href=https://rentry.co/shedletsky5>pt rentry.</a> ⠀⠀ <a href=https://colormytree.me/2025/01JE64K2961HVQ8J8DERVKDHHR>tree.</a>
+  <a href=https://rentry.co/finalshot>rentry.</a> ⠀⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀⠀ <a href=https://rentry.co/shedletsky5>pt rentry.</a> ⠀⠀ <a href=https://stickit2theman.straw.page/>straw.</a>
 </p>
 
 <br>
