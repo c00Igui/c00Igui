@@ -1,16 +1,24 @@
 <p align="center">
-  I BUILT MYSELF UP⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>ONLY TO BE YOU</ins>
+  these fools live to see another christmas..
 </p>
 <p align="center">
-  <img src="https://meawsource.carrd.co/assets/images/image12.png?v=771b0b18"/>
+  <img src="https://meawsource.carrd.co/assets/images/image28.png?v=4eead08e" width="500"/>
+</p>
+<p align="center">
+heavy c+h comf  𓏵  w2i pref
+</p>
+<p align="center">
+i can be very awkward ok
 </p>
 
+<br>
+
 <p align="center">
-  <a href=https://rentry.co/finalshot>rentry.</a> ⠀⠀ <a href=https://forsaken.atabook.org>atabook.</a>
+  <a href=https://rentry.co/shedIetsky>rentry.</a> ⠀⠀ <a href=https://forsaken.atabook.org>ata.</a>
 </p>
 
 <br>
 
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/f4aa4dc3-4567-40ba-9a62-b31bd30ca44b" />
+  <video src="https://github.com/user-attachments/assets/1f0938cb-32b7-4c9b-9024-b93af49f4175" />
 <div/>
