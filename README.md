@@ -5,10 +5,10 @@
   <img src="https://meawsource.carrd.co/assets/images/image28.png?v=4eead08e" width="500"/>
 </p>
 <p align="center">
-heavy c+h comf  𓏵  w2i pref
+heavy c+h comf  𓏵  usually on w2i
 </p>
 <p align="center">
-i can be very awkward ok
+feel free to talk to me B)
 </p>
 
 <br>
